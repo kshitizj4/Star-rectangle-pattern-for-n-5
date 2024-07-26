@@ -1,0 +1,1 @@
+# Star-rectangle-pattern-for-n-5
